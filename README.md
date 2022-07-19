@@ -1,4 +1,4 @@
-<p><i>"You kept saying, 'uncut gems!' And I was like, 'They're worth more when they're cut!"
+<p><i>"So I said, 'We gotta cut the gems!' And you kept saying, 'uncut gems!' And I was like, 'They're worth more when they're cut!'"
   <br>- Brennan Lee Mulligan</i></p>
 <hr>
 <b>Name:</b> Coleen Jill Sajo <br>
